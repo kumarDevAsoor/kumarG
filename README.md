@@ -1,8 +1,10 @@
-### Hi there 👋
 
+## 👋 Hi, I’m Kumar G
 
-
-<h1 align = center> KUMAR G</h1>
+- 💻 Frontend Developer (React)
+- 🎨 UI & Animation Lover
+- 🤖 Exploring AI + Web
+- ❤️ Built with passion
 
 
 
