@@ -21,8 +21,3 @@ Feel free to reach me with these. 𝙵𝚘𝚕𝚕𝚘𝚠 𝚖𝚢 S𝚘𝚌�
 
 <div>
 </a>
-
-## :book: 𝙰𝚋𝚘𝚞𝚝 𝙼𝚎
-- 🖥 𝙵𝚞𝚕𝚕-𝚜𝚝𝚊𝚌𝚔 𝚜𝚘𝚏𝚝𝚠𝚊𝚛𝚎 𝚍𝚎𝚟𝚎𝚕𝚘𝚙𝚎𝚛
- 
-- ✏️ Graphic Designer
